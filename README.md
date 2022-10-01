@@ -1,1 +1,1 @@
-my alx-pre_course 
+SCOTT J is good 
